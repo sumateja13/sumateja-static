@@ -1,0 +1,1 @@
+# sumateja-static
